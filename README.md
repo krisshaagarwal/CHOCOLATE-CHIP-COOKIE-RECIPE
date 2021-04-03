@@ -1,1 +1,1 @@
-# CHOCOLATE-CHIP-COOKIE-RECIPE
+Everyone needs a classic chocolate chip cookie recipe in their repertoire, and this is mine. It is seriously the Best Chocolate Chip Cookie Recipe Ever! I have been making these for many, many years and everyone who tries them agrees they’re out-of-this-world delicious!
